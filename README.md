@@ -1,1 +1,1 @@
-# JoKenPo_Daido
+# JoKenPo_Daido_Freitas
